@@ -1,6 +1,6 @@
 # Halo semua! 
 
-Perkenalkan nama saya **Gilang Ramadhan**.\
+Perkenalkan nama saya **Faaiz**.\
 
 Saya seorang **Siswa** di [Dicoding](https://www.dicoding.com/).\
 
